@@ -107,4 +107,4 @@ Para mais informações, mentorias, palestras ou programas corporativos, entre e
 **Carreira & Propósito**  
 Transformando carreiras em jornadas com significado.
 
-**Visite nosso site:** https://carreiraeproposito.com.br
+**Visite nosso site:** [https://carreiraeproposito.com.br](https://www.carreiraeproposito.com.br/)
